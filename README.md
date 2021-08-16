@@ -1,0 +1,3 @@
+- 👋 Ola, Eu sou @jeferson
+- 🌱 Estou atualmente estudando ADS estou no 4 semestre.
+- aperfeiçoando os conhecimentos.
